@@ -1,5 +1,15 @@
 ### Hi there 👋
 
+I am currently working at @botnow-ai.Welcome any form of communication and exchange.
+
+### Contact me
+
+- via email : bjwswang@gmail.com
+
+- via Wechat  
+![img_v3_02cm_542acbba-9a6f-4051-a97d-a3c3c7fa985g](https://github.com/bjwswang/bjwswang/assets/30621793/a2681a2c-095b-4b66-8ede-eb49a886a630)
+
+
 <!--
 **bjwswang/bjwswang** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
