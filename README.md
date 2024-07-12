@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-I am currently working at @botnow-ai.Welcome any form of communication and exchange.
+I am currently working at @botnow-ai. Welcome any form of communication and exchange.
 
 ### Contact me
 
