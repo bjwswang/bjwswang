@@ -1,7 +1,5 @@
 ### Hi there 👋
 
-I am currently working at @TabTabAI
-
 ### Contact me
 
 - @gmail : bjwswang@gmail.com
